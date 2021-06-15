@@ -1,6 +1,6 @@
 ![image](https://user-images.githubusercontent.com/84783787/121971991-6b86b480-cd50-11eb-9e15-7ae294f84cf2.png)
-<Br>
-
+<br>
+<br>
 
 ![image](https://user-images.githubusercontent.com/84783787/121971234-a851ac00-cd4e-11eb-8c18-c4c75ef15798.png)
 
@@ -15,5 +15,6 @@ Início 2009
 Fim: 2019
 
 Criador: André Gomes Rocha / Juliano Baptista
+
 
 
