@@ -12,7 +12,7 @@ O Alanis Always é dedicado a Alanis Morissette, foi criado em 17 de Março de 2
 Alanis Always Blog is dedicated to Alanis Morissette, there you find general information about the singer. In the Blog you will find a download section. Fans can give their opinion and suggestions on any report or any other matter. That is, a fully interactive Blog
 
 Início 2009
-Fim: 2019
+Under Constrution
 
 Criador: André Gomes Rocha / Juliano Baptista
 
